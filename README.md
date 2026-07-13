@@ -21,7 +21,7 @@
    <font color="#ff7b90">there is nothing  
    -------------------------
    <b>that</b> can stop me.
-   </font></p>**from the obsession behaves.**
+   </font></p>**from isolation.**
 
 <img width="719" height="548" alt="1000078497" src="https://github.com/user-attachments/assets/518bcc78-8a98-4009-9acf-349d6c5f52c2" />
                        💸
@@ -33,6 +33,7 @@
 
 > > ☆ Birthday:: **Feb 4**
 
+> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, etc (I CANT MY FINGERS ARE DEAD)
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
