@@ -27,13 +27,10 @@
                        💸
                        
 : information
---------------------------
-                       
-> ☆ age::  **14-15 !!!**
-
+------------------------------                      
 > > ☆ Birthday:: **Feb 4**
 
-> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, etc (I CANT MY FINGERS ARE DEAD)
+> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, blue lock, etc (I CANT MY FINGERS ARE DEAD)
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
@@ -53,6 +50,16 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > If your feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
 
+> if you see me out sitting without responding then im either offtab or afk/offline.
+
+> my weak mood- if i dont usually talk with energetic/or seem quiet then know I'm probably not in the mood!
+
+> int with any kind is okay! i accept all of these </3
+
+> i dont honestly get affected or offended by words i actually get amused of them (i genuinely dont know whats wrong with me💔)
+
+-------------------------------
+
 > FICTIONKIN -- Griefer **block tales** idk i find em cool 🥀<img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
 
 
@@ -62,8 +69,8 @@ thwts all tysm yall!!!
 
 
 
+<img width="132" height="166" alt="1000083003" src="https://github.com/user-attachments/assets/1960634e-d09e-4abb-bd4b-f7b2b18010fb" />
 
-<img width="466" height="374" alt="1000071899" src="https://github.com/user-attachments/assets/3a170b18-9f45-49a1-a6e7-7f149b57512a" />
 
 MIGHT UPDATE THIS BC IT LOOKS UGLY
 
