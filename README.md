@@ -33,7 +33,7 @@
 
 > > ☆ Birthday:: **Feb 4**
 
-> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, etc (I CANT MY FINGERS ARE DEAD)
+> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, etc (I CANT MY FINGERS ARE DEAD)
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
