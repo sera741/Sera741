@@ -60,7 +60,12 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 -------------------------------
 
-> FICTIONKIN -- Griefer **block tales** idk i find em cool 🥀<img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
+> FICTIONKIN -- Griefer **block tales** idk i find em cool/
+
+// also theres more kins
+but its alot🥀
+
+>  <img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
 
 
 : End ❄️
@@ -70,7 +75,7 @@ thwts all tysm yall!!!
 
 
 <img width="132" height="166" alt="1000083003" src="https://github.com/user-attachments/assets/1960634e-d09e-4abb-bd4b-f7b2b18010fb" />
-(my online sissy) ↑
+←(my online sissy) 
 
 MIGHT UPDATE THIS BC IT LOOKS UGLY
 
