@@ -74,10 +74,13 @@ thwts all tysm yall!!!
 
 
 
-<img width="132" height="166" alt="1000083003" src="https://github.com/user-attachments/assets/1960634e-d09e-4abb-bd4b-f7b2b18010fb" />
-←(my online sissy) 
+<img width="132" height="166" alt="1000083003" src="https://github.com/user-attachments/assets/1960634e-d09e-4abb-bd4b-f7b2b18010fb" /> ←my online sissy 
+starry💫
 
-MIGHT UPDATE THIS BC IT LOOKS UGLY
+
+
+> I love them sm they're my top one
+             🎀
 
 
 
