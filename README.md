@@ -65,6 +65,7 @@ thwts all tysm yall!!!
 
 <img width="466" height="374" alt="1000071899" src="https://github.com/user-attachments/assets/3a170b18-9f45-49a1-a6e7-7f149b57512a" />
 
+MIGHT UPDATE THIS BC IT LOOKS UGLY
 
 
 
