@@ -30,7 +30,7 @@
 ------------------------------                      
 > > ☆ Birthday:: **Feb 4**
 
-> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, blue lock, etc (I CANT MY FINGERS ARE DEAD)
+> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, Minecraft etc (I CANT MY FINGERS ARE DEAD)
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
@@ -59,6 +59,9 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 > int with any kind is okay! i accept all of these </3
 
 > i dont honestly get affected or offended by words i actually get amused of them (i genuinely dont know whats wrong with me💔)
+
+> i call people
+**BERRIES.**
 
 -------------------------------
 
