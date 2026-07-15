@@ -34,6 +34,8 @@
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
+> ★ ABSOLUTELY **extrovert** i love everyone!!! 
+
 
 <img width="462" height="707" alt="1000078546" src="https://github.com/user-attachments/assets/baea5fc7-1c79-4862-9298-886277273d51" />
 
@@ -50,7 +52,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > If your feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
 
-> if you see me out sitting without responding then im either offtab or afk/offline.
+> if you see me out sitting without responding then im either offtab or afk/offline. w2i at that time!
 
 > my weak mood- if i dont usually talk with energetic/or seem quiet then know I'm probably not in the mood!
 
