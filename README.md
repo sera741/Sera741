@@ -63,6 +63,10 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 > i call people
 **BERRIES.**
 
+SPREADING AWARENESS!!! (for pony town users especially!) 
+
+https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0 C0PY TOWN R AFTER US
+Docs made by me
 -------------------------------
 
 > FICTIONKIN -- Griefer **block tales** idk i find em cool/
