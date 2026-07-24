@@ -30,7 +30,7 @@
 ------------------------------                      
 > > ☆ Birthday:: **Feb 4**
 
-> > > ★ fandoms: bad things, roblox, tangles, tadc, vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob), crk, forsaken, dandy's world, anomal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, Minecraft etc (I CANT MY FINGERS ARE DEAD)
+> > > ★ fandoms: bad things, roblox, tangles, tadc (amazing digital circus) , vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob)l, forsaken, dandy's world, animal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, UnstableUniverse, Roblox, dream world , abimations vs animations, animations vs Minecraft,  Amongus, ddlc, sega/ sonic the hedgehog , Minecraft, my litrle pony, Stray Kids, poppy playtime, fnaf, (,fnf (Friday night funkin) cookie run kingdom, etc (there's more but I forget to name them :/ )
 
 this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
 
