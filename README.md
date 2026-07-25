@@ -50,7 +50,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > PLEASE PLEASE INTERACT WITH ME, im absolutely a loner. I swear im funny!!
 
-> If your feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
+> If you're feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
 
 > if you see me out sitting without responding then im either offtab or afk/offline. w2i at that time!
 
@@ -63,12 +63,13 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 > i call people
 **BERRIES.**
 
-dni: criticism people
+dni: criticism people (i dont really have dni list bc i dont really care thst much ig)
 
 SPREADING AWARENESS!!! (for pony town users especially!) 
 
 https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0 C0PY TOWN R AFTER US
 Docs made by me
+
 -------------------------------
 
 > FICTIONKIN -- Griefer **block tales** idk i find em cool/
@@ -98,7 +99,7 @@ starry💫
 
 
 
-[ REMINDER!! :: you dont need to be perfect, always be yourself. ]
+[ REMINDER!! :: you dont need to be perfect for others, always be yourself. ]
 
 
 
