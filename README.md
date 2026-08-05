@@ -32,12 +32,11 @@
 
 > > > ★ fandoms: bad things, roblox, tangles, tadc (amazing digital circus) , vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob)l, forsaken, dandy's world, animal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, UnstableUniverse, Roblox, dream world , abimations vs animations, animations vs Minecraft,  Amongus, ddlc, sega/ sonic the hedgehog , Minecraft, my litrle pony, Stray Kids, poppy playtime, fnaf, (,fnf (Friday night funkin) cookie run kingdom, etc (there's more but I forget to name them :/ )
 
-this is genuinely my sona!! (uhh i dont use it much lol, but its practically my sona!))
+
+https://github.com/user-attachments/assets/fa2ce0a1-e666-40fd-a158-5fea12e6fe35
+
 
 > ★ ABSOLUTELY **extrovert** i love everyone!!! 
-
-
-<img width="462" height="707" alt="1000078546" src="https://github.com/user-attachments/assets/baea5fc7-1c79-4862-9298-886277273d51" />
 
 
 : extra
@@ -61,13 +60,13 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 > i dont honestly get affected or offended by words i actually get amused of them (i genuinely dont know whats wrong with me💔)
 
 > i call people
-**BERRIES.**
+**TWINKS.**/j
 
 dni: criticism people (i dont really have dni list bc i dont really care thst much ig)
 
 SPREADING AWARENESS!!! (for pony town users especially!) 
 
-https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0 C0PY TOWN R AFTER US
+https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0 C0PY TOWN_
 Docs made by me
 
 -------------------------------
@@ -101,6 +100,12 @@ starry💫
 
 [ REMINDER!! :: you dont need to be perfect for others, always be yourself. ]
 
+
+
+free peak evil edit of these mfs
+
+
+https://github.com/user-attachments/assets/672a0e48-a75f-47b5-8032-4cbce29a53d6
 
 
 
