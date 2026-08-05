@@ -33,7 +33,9 @@
 > > > ★ fandoms: bad things, roblox, tangles, tadc (amazing digital circus) , vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob)l, forsaken, dandy's world, animal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, UnstableUniverse, Roblox, dream world , abimations vs animations, animations vs Minecraft,  Amongus, ddlc, sega/ sonic the hedgehog , Minecraft, my litrle pony, Stray Kids, poppy playtime, fnaf, (,fnf (Friday night funkin) cookie run kingdom, etc (there's more but I forget to name them :/ )
 
 
-https://github.com/user-attachments/assets/fa2ce0a1-e666-40fd-a158-5fea12e6fe35
+<img width="720" height="1104" alt="1000090812" src="https://github.com/user-attachments/assets/59be32f0-2d3c-4624-8529-a25e71cfe3e0" />
+
+
 
 
 > ★ ABSOLUTELY **extrovert** i love everyone!!! 
