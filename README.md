@@ -59,7 +59,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > int with any kind is okay! i accept all of these </3
 
-> i dont honestly get affected or offended by words i actually get amused of them (i genuinely dont know whats wrong with me💔)
+> i dont honestly get affected or offended by words i actually don't care about them (i genuinely dont know whats wrong with me💔)
 
 > i call people
 **TWINKS.**/j
