@@ -55,7 +55,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > if you see me out sitting without responding then im either offtab or afk/offline. w2i at that time!
 
-> my weak mood- if i dont usually talk with energetic/or seem quiet then know I'm probably not in the mood!
+> my weak mood : if i dont usually talk with energetic/or seem quiet then know I'm probably not in the mood.
 
 > int with any kind is okay! i accept all of these </3
 
@@ -64,7 +64,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 > i call people
 **TWINKS.**/j
 
-dni: criticism people (i dont really have dni list bc i dont really care thst much ig)
+dni: criticism people (i dont really have dni list since i dont really care thst much ig)
 
 SPREADING AWARENESS!!! (for pony town users especially!) 
 
@@ -104,10 +104,12 @@ starry💫
 
 
 
-free peak evil edit of these mfs
+free peak evil edit of these yaoiguys (I change the video when I feel bored)
 
 
-https://github.com/user-attachments/assets/672a0e48-a75f-47b5-8032-4cbce29a53d6
+https://github.com/user-attachments/assets/484cc180-b6da-4ad9-8866-f25f2c27f47f
+
+
 
 
 
