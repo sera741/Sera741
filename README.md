@@ -27,7 +27,11 @@
                        💸
                        
 : information
-------------------------------                      
+------------------------------          I'm @sera741 ! ( you can refer me as sera) 
+
+yoo check this dead account bro @shinobukocholover
+
+
 > > ☆ Birthday:: **Feb 4**
 
 > > > ★ fandoms: bad things, roblox, tangles, tadc (amazing digital circus) , vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob)l, forsaken, dandy's world, animal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, UnstableUniverse, Roblox, dream world , abimations vs animations, animations vs Minecraft,  Amongus, ddlc, sega/ sonic the hedgehog , Minecraft, my litrle pony, Stray Kids, poppy playtime, fnaf, (,fnf (Friday night funkin) cookie run kingdom, etc (there's more but I forget to name them :/ )
@@ -46,20 +50,17 @@
 
 c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable with it.
 
-
-> you can ship me With Anyone, idgaf tho.
-
 > PLEASE PLEASE INTERACT WITH ME, im absolutely a loner. I swear im funny!!
 
 > If you're feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
 
 > if you see me out sitting without responding then im either offtab or afk/offline. w2i at that time!
 
-> my weak mood : if i dont usually talk with energetic/or seem quiet then know I'm probably not in the mood.
+> my weak mood - if i dont randomly talk with energetic/or seem quiet then know I'm probably not in the mood.
 
 > int with any kind is okay! i accept all of these </3
 
-> i dont honestly get affected or offended by words i actually don't care about them (i genuinely dont know whats wrong with me💔)
+> i dont get affected or offended by words i just don't really care about them (i genuinely dont know whats wrong with me💔)
 
 > i call people
 **TWINKS.**/j
@@ -106,16 +107,10 @@ starry💫
 
 ---------------------
 
-
-free peak evil edit of these yaoiguys (I change the video when I feel bored)
-
-
-
-https://github.com/user-attachments/assets/484cc180-b6da-4ad9-8866-f25f2c27f47f
+peak random video I made of this twink (I change the video when I feel bored)
 
 
 
 
-
-
+https://github.com/user-attachments/assets/2c99bff6-a482-479b-9986-eb7b485072e1
 
