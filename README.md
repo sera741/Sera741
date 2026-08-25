@@ -29,7 +29,7 @@
 : information
 ------------------------------          I'm @sera741 ! ( you can refer me as sera) 
 
-yoo check this dead account bro @shinobukocholover
+yoo check this dead account bro https://github.com/shinobukocholover
 
 
 > > ☆ Birthday:: **Feb 4**
