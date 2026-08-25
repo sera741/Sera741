@@ -27,7 +27,9 @@
                        💸
                        
 : information
-------------------------------          I'm @sera741 ! ( you can refer me as sera) 
+------------------------------   
+
+I'm @sera741 ! ( you can refer me as sera) 
 
 yoo check this dead account bro https://github.com/shinobukocholover
 
