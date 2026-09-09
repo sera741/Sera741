@@ -29,7 +29,7 @@
 : information
 ------------------------------   
 
-I'm @sera741 ! ( you can refer me as sera) 
+I'm @sera741 ! ( you can refer me as sera) / or anyone Ig
 
 yoo check this dead account bro https://github.com/shinobukocholover
 
@@ -44,19 +44,20 @@ yoo check this dead account bro https://github.com/shinobukocholover
 
 
 
-> ★ ABSOLUTELY **extrovert** i love everyone!!! 
+> ★ ABSOLUTELY **extrovert** i love everyone!!!
 
+ > ★ with how much I would love to talk with anyone, don't be **ashamed** to call me by any **pronouns!** I'm okay with both sides. **(Any/all pronouns)**
 
 : extra
 --------------------------
 
-c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable with it.
+**c+h is comfortly** Allowed! i dont mind it at all, in fact Im actually comfortable with it.
 
 > PLEASE PLEASE INTERACT WITH ME, im absolutely a loner. I swear im funny!!
 
-> If you're feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
+> If you're feeling **uncomfortable** with me say it out, **I respect everyone's privacy and Boundaries.**
 
-> if you see me out sitting without responding then im either offtab or afk/offline. w2i at that time!
+> if you see me out sitting without *responding* then im either **offtab or afk/offline.** *w2i* at that time!
 
 > my weak mood - if i dont randomly talk with energetic/or seem quiet then know I'm probably not in the mood.
 
