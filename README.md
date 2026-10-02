@@ -1,119 +1,51 @@
-<img width="237" height="282" alt="1000077274" src="https://github.com/user-attachments/assets/1bfd66f3-9399-45be-bdd8-2d7356bbd4a1" />
-<p align="center">
-  <font size="2" color="#b5b5b5">welcome to the unsettling world, darling</font>
-</p>
-<p align="center"><!-- Top decorative wave spacing -->
-  <font color="#ffb7c5">.·͙*̩̩͙˚̩̥̩̥ ⌁☊⌁ ˚̩̥̩̥*̩̩͙‧͙</font>
-</p>
+
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=CBC3E3&center=true&vCenter=true&width=650&height=200&lines=Its+okay+;+.+.+.+.+;:)+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness." />
+</div>
 
 
-<p align="center"  <!-- Frequency wave boundary lines -->
-  <font color="#ffb7c5">
-    ⋆⁺₊⋆ ⌁☊⌁ ⋆⁺₊⋆ ‧ ⌁☊⌁ ‧ ⋆⁺₊⋆ ⌁☊⌁ ⋆⁺₊⋆
-  </font>
-</p>
 
-<p align="center">
+::
+----------------------------------
+<img width="2048" height="2048" alt="1000100609" src="https://github.com/user-attachments/assets/c492b967-9344-4028-b062-63920e6d096d" />
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=32&duration=3500&pause=1000&color=4B246B&center=true&vCenter=true&width=650&height=200&lines=In+another+life%3F;Im+always+on+your+side.;Please+dont+die+on+me.;Promise+me+that+youll+stay+here.;One+day%2C+you+will+expect+the+sharpness." alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness."/>
+</div
+
+  “ free ints however you like! I'm pretty chill „ ..
   
-  Haii!! me sera!!,<br>
-  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; scroll down to know about me!!,<br><<br> 
+          ----------
+
+          
+          “ c+h is heavily encouraged, I feel comfortable seeing someone cuddle with me so go ahead! „
   
-   <font color="#ff7b90">there is nothing  
-   -------------------------
-   <b>that</b> can stop me.
-   </font></p>**from isolation.**
+  
+<div align="center">
+  <img <img width="736" height="736" alt="1000100586" src="https://github.com/user-attachments/assets/f68038a1-09d9-426d-b3e5-064c1c9dc08a" />
 
-<img width="719" height="548" alt="1000078497" src="https://github.com/user-attachments/assets/518bcc78-8a98-4009-9acf-349d6c5f52c2" />
-                       💸
-                       
-: information
-------------------------------   
+<div align="center">
 
-I'm @sera741 ! ( you can refer me as sera) / or anyone Ig
+<span style="color:#B66AD1;">  𝓗𝓮𝔂 𝓼𝓮𝓻𝓪 𝓱𝓮𝓻𝓮!</span>
 
-yoo check this dead account bro https://github.com/shinobukocholover
+<span style="color:#B66AD1;">♥ .  𝓘'𝓶 𝓽𝓱𝓮 𝓹𝓮𝓻𝓼𝓸𝓷 𝔀𝓱𝓸 𝓵𝓲𝓼𝓽 𝓮𝓿𝓮𝓻𝔂𝓸𝓷𝓮</span>
 
 
-> > ☆ Birthday:: **Feb 4**
+  
+<div align="center">
 
-> > > ★ fandoms: bad things, roblox, tangles, tadc (amazing digital circus) , vocaloid, phighting (maybe?) , roblox , nostalgic hangout (roblox) , alien/zombie stage, alan becker, creepypasta, stranger things (and that other version of mike and will) , owel house, K-Pop, Regretevator, Pressure, doors, death note, demon slayer, jjk, something is knocking at your door (thatmob)l, forsaken, dandy's world, animal hospital, trud, blue lock, countryhumans/countryballs, unstable smp, dream smp, other smps, UnstableUniverse, Roblox, dream world , abimations vs animations, animations vs Minecraft,  Amongus, ddlc, sega/ sonic the hedgehog , Minecraft, my litrle pony, Stray Kids, poppy playtime, fnaf, (,fnf (Friday night funkin) cookie run kingdom, etc (there's more but I forget to name them :/ )
+$\color{#C18ACB}{\textsf{Call me Sera or anything.}}$
 
+$\color{#A65D91}{\textsf{Basically the rage baiter}}$
 
-<img width="720" height="1104" alt="1000090812" src="https://github.com/user-attachments/assets/59be32f0-2d3c-4624-8529-a25e71cfe3e0" />
+$\color{#823D63}{\textsf{Don't mess with me or I'll sing you LSP/j}}$
 
-
-
-
-> ★ ABSOLUTELY **extrovert** i love everyone!!!
-
- > ★ with how much I would love to talk with anyone, don't be **ashamed** to call me by any **pronouns!** I'm okay with both sides. **(Any/all pronouns)**
-
-: extra
---------------------------
-
-**c+h is comfortly** Allowed! i dont mind it at all, in fact Im actually comfortable with it.
-
-> PLEASE PLEASE INTERACT WITH ME, im absolutely a loner. I swear im funny!!
-
-> If you're feeling **uncomfortable** with me say it out, **I respect everyone's privacy and Boundaries.**
-
-> if you see me out sitting without *responding* then im either **offtab or afk/offline.** *w2i* at that time!
-
-> my weak mood - if i dont randomly talk with energetic/or seem quiet then know I'm probably not in the mood.
-
-> int with any kind is okay! i accept all of these </3
-
-> i dont get affected or offended by words i just don't really care about them (i genuinely dont know whats wrong with me💔)
-
-> i call people
-**TWINKS.**/j
-
-dni: criticism people (i dont really have dni list since i dont really care thst much ig)
-
-SPREADING AWARENESS!!! (for pony town users especially!) 
-
-https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0 C0PY TOWN_
-Docs made by me
-
--------------------------------
-
-> FICTIONKIN -- Griefer **block tales** idk i find em cool/
-
-// also theres more kins
-but its alot🥀
-
->  <img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
+</div>
 
 
-: End ❄️
--------------------------
-thwts all tysm yall!!!  
+</div>
 
+<img width="2048" height="2048" alt="1000100610" src="https://github.com/user-attachments/assets/e0087f6a-be32-4e0d-9471-9ef1cc3dbd4f" />
 
-
-<img width="132" height="166" alt="1000083003" src="https://github.com/user-attachments/assets/1960634e-d09e-4abb-bd4b-f7b2b18010fb" /> ←my online sissy 
-starry💫
-
-
-
-> I love them sm they're my top one
-             🎀
-
-
-
-
-
-
-[ REMINDER!! :: you dont need to be perfect for others, always be yourself. ]
-
-
-
----------------------
-
-peak random video I made of this twink (I change the video when I feel bored)
-
-
-
-
-https://github.com/user-attachments/assets/2c99bff6-a482-479b-9986-eb7b485072e1
-
+::
+-------------------------------------
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=B66AD1&center=true&vCenter=true&width=650&height=200&lines=come+on+parrot,;smile.;its's+all+yours+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness." />
+</div>
