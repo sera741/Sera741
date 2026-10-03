@@ -52,5 +52,5 @@ $\color{#823D63}{\textsf{Don't mess with me or I'll sing you LSP/j}}$
 
 ::
 -------------------------------------
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=B66AD1&center=true&vCenter=true&width=650&height=200&lines=come+on+parrot,;smile.;its's+all+yours+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness." />
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=B66AD1&center=true&vCenter=true&width=650&height=200&lines=come+on+parrot,;smile.;you're+safe.+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness." />
 </div>
