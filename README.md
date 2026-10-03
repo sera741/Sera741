@@ -38,6 +38,8 @@ $\color{#A65D91}{\textsf{Basically the rage baiter}}$
 
 $\color{#823D63}{\textsf{Don't mess with me or I'll sing you LSP/j}}$
 
+[know me](https://github.com/sera741/yellow-world-) 
+
 </div>
 
 
