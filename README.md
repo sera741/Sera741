@@ -40,6 +40,9 @@ $\color{#823D63}{\textsf{Don't mess with me or I'll sing you LSP/j}}$
 
 [know me](https://github.com/sera741/yellow-world-) ♥ [discord](https://discord.com/users/1451411241280209090) ♥ [ata](https://sera.atabook.org/)
 
+
+[CT AWARENESS PLEASS READ](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0)
+
 </div>
 
 
