@@ -1,5 +1,5 @@
 
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=CBC3E3&center=true&vCenter=true&width=650&height=200&lines=Its+okay+;+.+.+.+.+;:)+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the sharpness." />
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&weight=500&size=43&duration=3500&pause=1000&color=CBC3E3&center=true&vCenter=true&width=650&height=200&lines=Its+okay+;+.+.+.+.+;:)+" alt="In another life? I'm always on your side. Please don't die on me. Promise me that you'll stay here. One day, you will expect the perfection." />
 </div>
 
 
